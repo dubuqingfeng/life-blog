@@ -88,7 +88,7 @@ exclude_generator:
 ## Docs: https://hexo.io/docs/deployment.html
 deploy:
   type: git
-  repo: git@git.coding.net:1433res/life-blog.git
+  repo: git@github.com:dubuqingfeng/life-blog.git
   branch: master
 
 sitemap:
