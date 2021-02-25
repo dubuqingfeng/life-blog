@@ -10,7 +10,7 @@ env:
   GIT_EMAIL: 1135326346@qq.com
   THEME_REPO: litten/hexo-theme-yilia
   THEME_BRANCH: master
-  DEPLOY_REPO: dubuqingfeng/dubuqingfeng.github.io
+  DEPLOY_REPO: dubuqingfeng/life-blog
   DEPLOY_BRANCH: master
 
 jobs:
