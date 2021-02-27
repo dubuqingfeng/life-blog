@@ -11,6 +11,8 @@ tags:
 
 寄语：花非花，雾非雾。夜半来，天明去。来如春梦几多时？去似朝云无觅处。多少相思，多少哀怨，尽在人生中。
 
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202102-yinanping-yigewenrouderen-01.gif)
+
 ## 意难平
 
 人生不可能是一帆风顺的。
@@ -26,6 +28,8 @@ tags:
 人生难免会失败，再正常不过的事情，要是人人均成功，那么社会早就是大同，那又何苦在尘世间挣扎，当不如意的时候，看开就好了。俗话说，解情还需系情人，所以关键还是在于自己。
 
 咳，人生终究意难平。
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202102-yinanping-yigewenrouderen-02.webp)
 
 ## 一个温柔的人
 
@@ -72,3 +76,5 @@ tags:
 读更多书以后，我想会更靠近温柔的人吧。
 
 愿都能自由自在。
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202102-yinanping-yigewenrouderen-03.webp)

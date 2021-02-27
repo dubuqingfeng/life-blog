@@ -9,6 +9,10 @@ tags:
  - 以太坊
 ---
 
+寄语：比特币不断突破新高，是投机，还是投资，建立对其的信任很关键，当然也要发散性思维，扩展不同的愿景。
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202102-bitexiangzuoyitaixiangrou-01.webp)
+
 ## 意识形态
 
 我想世界上只有两种人，一种是接受比特币的，视比特币为投机也好，信仰也罢，心底上“信任”比特币，尊重比特币的机制；而另一种是不接受比特币的，对比特币还持有一种固执的执念，传销也好，骗局也罢。
@@ -29,6 +33,8 @@ tags:
 
 
 ## 以太向右
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202102-bitexiangzuoyitaixiangrou-02.png)
 
 比特向左，以太向右。
 
@@ -65,3 +71,5 @@ defi 从去年到现在，我想是很火的，甚至没有研究过 defi 的，
 原文便是比特币白皮书链接。
 
 https://btc.com/bitcoin.pdf
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202102-bitexiangzuoyitaixiangrou-03.webp)

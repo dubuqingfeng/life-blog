@@ -9,6 +9,12 @@ tags:
  - 感觉
 ---
 
+寄语：浪漫的爱很美好，但遇到也很难，踏遍万水千山，难觅真爱，亦是遗憾。
+
+最终的爱，不过是一种纠缠，一种陪伴。
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202102-yexuxiangaihennan-01.webp)
+
 ## 高级动物
 
 低情商：农村剩男输出
@@ -44,6 +50,9 @@ tags:
 人生苦短，何不变得有趣。
 
 ## 相亲
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202102-yexuxiangaihennan-02.webp)
+
 
 今天要讲一个相亲的故事，但不是现代的，很久以前的，这么民间流传下来的，从别的地方听到的。
 
@@ -88,3 +97,5 @@ tags:
 追求感觉并不错，希望都能好好爱自己，别让自己受伤。
 
 愿都能万事顺意。
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202102-yexuxiangaihennan-03.webp)
