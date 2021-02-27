@@ -11,7 +11,7 @@ tags:
 
 寄语：花非花，雾非雾。夜半来，天明去。来如春梦几多时？去似朝云无觅处。多少相思，多少哀怨，尽在人生中。
 
-![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202102-yinanping-yigewenrouderen-01.gif)
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202102-yinanping-yigewenrouderen-01.webp)
 
 ## 意难平
 
