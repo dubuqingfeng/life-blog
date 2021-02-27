@@ -4,7 +4,7 @@ date: 2016-06-11 20:49:11
 tags:
 ---
 
-![](https://oj5mehwxz.qnssl.com/201606-gududemeishijia-01.png)
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/201606-gududemeishijia-01.png)
 
 首先是一个抱歉，那天不应该那么晚才推，最后一分钟因为网的问题，成了第二天的第一分钟，导致第二天就不能群发了。细想回来，这算是一种拖延症吧，这种没有目标没有动力的事情，并且现在也没从中得到享受，所以感觉有时候有点拖延。总觉得不能这样了，应该提前规划一下要写的内容。
 
@@ -33,7 +33,7 @@ tags:
 
 慢慢进步吧。
 
-![](https://oj5mehwxz.qnssl.com/201606-gududemeishijia-02.png)
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/201606-gududemeishijia-02.png)
 果然晚上不适合做饭，拍出来就变丑了。为了美食都得有好手机好灯光。。
 
 西安的一些美食
@@ -44,4 +44,4 @@ tags:
 
 还是附点好看好吃的吧。
 
-![](https://oj5mehwxz.qnssl.com/201606-gududemeishijia-03.png)
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/201606-gududemeishijia-03.png)

@@ -34,4 +34,4 @@ tags: 学习方法
 
 当然这篇文章现在看来也应该有新的想法了，学习的方法因人而异。附无意义社交：
 
-![](https://oj5mehwxz.qnssl.com/201606-ruhegaoxiaodexuexi-01.png)
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/201606-ruhegaoxiaodexuexi-01.png)

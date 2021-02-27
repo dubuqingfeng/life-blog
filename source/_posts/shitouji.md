@@ -4,7 +4,7 @@ date: 2016-06-08 23:30:18
 tags:
 ---
 
-![](https://oj5mehwxz.qnssl.com/201606-shitouji-01.png)
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/201606-shitouji-01.png)
 
 一走数千里，风雨中冲晒。
 

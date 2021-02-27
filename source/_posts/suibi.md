@@ -4,7 +4,7 @@ date: 2016-03-31 20:44:24
 tags: 随笔
 ---
 
-![](https://oj5mehwxz.qnssl.com/201604-suibi-01.png)
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/201604-suibi-01.png)
 
 既然是随笔，就应该无所顾及。说一说现在的事，讲一讲心中的意。
 

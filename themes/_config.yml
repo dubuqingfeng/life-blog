@@ -54,9 +54,9 @@ reward_type: 2
 # 打赏wording
 reward_wording: '美景加咖啡，一杯又一杯。'
 # 支付宝二维码图片地址，跟你设置头像的方式一样。比如：/assets/img/alipay.jpg
-alipay: https://oijlbmkg8.qnssl.com/blog_ali_pay.png
+alipay: https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/common/blog_ali_pay.png
 # 微信二维码图片地址
-weixin: https://oijlbmkg8.qnssl.com/blog_wechat_pay.png
+weixin: https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/common/blog_wechat_pay.png
 
 # Miscellaneous
 baidu_analytics: ''
@@ -64,7 +64,7 @@ google_analytics: ''
 favicon: /favicon.png
 
 #你的头像url
-avatar: https://oj5mehwxz.qnssl.com/github-icon-url.jpeg
+avatar: https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/common/github-icon-url.jpeg
 
 #是否开启分享
 share_jia: true

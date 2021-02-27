@@ -2,7 +2,7 @@
 title: 幻变的三年，一生何求
 date: 2016-06-13 23:30:18
 ---
-![](https://oj5mehwxz.qnssl.com/201606-huanbiandesannianyishengheqiu-01.png)
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/201606-huanbiandesannianyishengheqiu-01.png)
 
 五年高考，三年模拟。
 
@@ -28,4 +28,4 @@ date: 2016-06-13 23:30:18
 
 一颗孤寂的心，无处可归。
 
-![](https://oj5mehwxz.qnssl.com/201606-huanbiandesannianyishengheqiu-02.png)
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/201606-huanbiandesannianyishengheqiu-02.png)
