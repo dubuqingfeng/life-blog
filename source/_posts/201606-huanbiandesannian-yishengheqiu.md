@@ -1,7 +1,11 @@
 ---
 title: 幻变的三年，一生何求
 date: 2016-06-13 23:30:18
+tags:
+ - 人生
+ - 生活
 ---
+
 ![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/201606-huanbiandesannianyishengheqiu-01.png)
 
 五年高考，三年模拟。

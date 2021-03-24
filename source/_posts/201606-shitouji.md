@@ -2,6 +2,8 @@
 title: 石头记
 date: 2016-06-08 23:30:18
 tags:
+ - 人生
+ - 生活
 ---
 
 ![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/201606-shitouji-01.png)

@@ -2,6 +2,8 @@
 title: 孤独的美食家
 date: 2016-06-11 20:49:11
 tags:
+ - 人生
+ - 生活
 ---
 
 ![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/201606-gududemeishijia-01.png)
