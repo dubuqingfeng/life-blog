@@ -9,6 +9,8 @@ tags:
  - 认知
 ---
 
+引言：
+
 Defi 的基础是安全和流动性，方向是可持续，鱼龙混杂，大浪淘沙，经历牛熊才是好的项目。本篇意难平，就教大家如何错过这样的项目与机遇。
 
 ![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202103-yinanping-ruhecuoguobaibeidedefi-01.png)
