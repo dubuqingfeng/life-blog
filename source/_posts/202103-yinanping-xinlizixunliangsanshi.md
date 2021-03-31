@@ -15,6 +15,8 @@ tags:
 
 ## 引导共鸣
 
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202103-yinanping-xinlizixunliangsanshi-01.webp)
+
 随着社会的发展，人接受到的信息也多到爆炸，到现在，人类已经不只思考温饱问题，开始向更高层次进行探索，而面对形形色色的行为、外界的因素，不可避免地会触碰到自我的状态和情绪。
 
 于是，近年来，有一个职业也在迅猛地发展，那便是心理咨询师，和互联网一样，它也是历史不久的职业，本篇意难平，就主要写一些在心理咨询的点点滴滴，以及自我认识，包括在这方面有什么想法或者认知的，都可以留言或者私信，每一条都会认真的看。
@@ -25,9 +27,13 @@ tags:
 
 实际上，心理学，实在是太广泛了，横跨多个学科，需要懂很多方面的知识，有了很多很多的分支，（真的看不完，慢慢看吧）。就和其他一样，甚至于万物皆艺术，心理学也不例外，还发展出了科学心理学，艺术心理学的内容。
 
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202103-yinanping-xinlizixunliangsanshi-02.png)
+
 现在的发展，早已不是以前，通过几个简单的心理测试，就能决定人的人格、形式，一些比如付出型，讨好型常见的人格只是简单的分类，甚至有些人可以是重叠状态，这就更复杂了，在短短不到一个小时的心理治疗，通常情况下也很难完全做出改变，所以这应该是一个周期性的过程。
 
 其实，解铃还须系铃人，有下半句，心病还需心药医。就和医生一样，对症下药，让人不要有心理压力，这便是极棒的。现在释放压力的方式也很多了，比如酒，比如故事，比如听歌，都是在不断地释放自己的情绪，也是一种引导与共鸣。
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202103-yinanping-xinlizixunliangsanshi-03.webp)
 
 ## 心理咨询师的成长
 
@@ -52,6 +58,8 @@ tags:
 最后当然很重要的一环，和其他方面也一样，要注重自我的成长，自己变得更优秀，这样遇到形形色色了以后，都能坦然面对。
 
 看了《改变心理学的40项研究》以后，当然会有更多的思考，以前喜欢百事百科，现在觉得探索人生与人性也是极好的感觉。
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202103-yinanping-xinlizixunliangsanshi-04.webp)
 
 ## 沉没成本与人性
 
@@ -84,6 +92,8 @@ tags:
 说着说着，他眼里放出光芒，突然兴奋地又站了起来，取出小刀来回忙了一下，说，“你看，还是电动汽车呢！”。
 
 记者凑上前一看，不禁感叹道：”雷总，这是天意啊。祝您成功！“
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202103-yinanping-xinlizixunliangsanshi-05.webp)
 
 今日歌曲，似是故人来，回忆不断，说今夜真暖。
 
