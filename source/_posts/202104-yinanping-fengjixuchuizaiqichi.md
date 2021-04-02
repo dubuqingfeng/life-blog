@@ -15,6 +15,8 @@ tags:
 
 ## 今夜不设防
 
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-yinanping-fengjixuchuizaiqishi-01.webp)
+
 以温柔眼睛看世界。
 
 前几天，看着路上熙熙攘攘的人群，有些是匆匆忙忙，有些是奔向围炉夜话，不尽相同。而且人的话，不知道为什么，晚上效率会比较高一些，那种情感方面会更加强烈一点，有句诗这么说，何当共剪西窗烛，却话巴山夜雨时。（大概没有人在太阳刚升起的时候表白吧）
@@ -37,11 +39,15 @@ tags:
 
 其实这节的标题，取自亚视的一档节目，在谈笑间，论人生，不管是什么话题，都尽求真实，让嘉宾放下心里的防线，说一些真话。感觉近年的这类型的节目越来越少，《十三邀》勉勉强强，尽管还是有很多非议，但是制作人有在认真的做，不像一些节目，都按剧本去出发，仿佛一切都是设定好的一样，没有内心所表达的效果，脱口秀如此，吐槽亦如此，选秀也一样。
 
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-yinanping-fengjixuchuizaiqishi-02.webp)
+
 张国荣有句，“忍一时海阔天空，退一步海阔天空。”，也是这里来的。世界上如果是有更多的真和深情，想必会更加的和谐和舒适吧。所以要相信美好的事情一定会发生。
 
 愿都可以温柔以待。
 
 ## 数字人生
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-yinanping-fengjixuchuizaiqishi-03.webp)
 
 人生可以是任何样子的，数字也不例外。在音乐里，我想《数字人生》是一首特别特殊的歌吧。
 
@@ -52,6 +58,8 @@ tags:
 一天有 24 个小时，一年有 365 天，时间自然是有限的，不妨放下心里的防线，敬请让大脑轻松一下，享受这数字带来的人生。
 
 其实这些，古人也经常进行思考，一个有意思的内容便是《易经》，它不是科学的范畴，但却是智慧的结晶，探讨了世间万物，万法归一，八八六十四卦，卦卦讲一种奥妙。其实就是一种东方的哲学方式，归于本源，当然不能过分的迷信它，它也不是万能之法，不能面面俱到，吸取对自己有益的东西，弃其糟粕。
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-yinanping-fengjixuchuizaiqishi-04.webp)
 
 ## monica
 
@@ -66,6 +74,8 @@ tags:
 大概人也是不可貌相，有时候长相平庸却富有想法，成就不少却低调谦虚，天性乐观又幽默风趣。
 
 现在已是 4 月份的第一天，不管是忙碌也好，闲暇也罢，过去的事情，不好的事情都过去了，这已经是一个成熟的 Q2 了，可以自己去做计划了，积极乐观，努力成长，可以收获更多的东西。
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-yinanping-fengjixuchuizaiqishi-05.webp)
 
 本次歌曲环节，《杯酒当歌》。
 
