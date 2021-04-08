@@ -15,6 +15,8 @@ tags:
 
 ## 今日的思考
 
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-yinanping-jinrizuoriyumingri-01.webp)
+
 今天依然是在路上探寻着人文和风景，在阅览之余，不禁会停下脚步，对自己，对生活，进行一些思考。
 
 其实人，会有一种刻板印象，在对比价格的时候，总会在心里和自己经常的水平范围内的进行比较，这个时候，就出现了一定的偏差，如果平常物价较高，而去了一些地方就觉得，这个地方原来也没有想象中的坑人呀，而平时物价不高的人，有的去了往往就会四处留神，深怕自己被坑到。
@@ -31,6 +33,8 @@ tags:
 
 这便是当代一部分青年的想法。
 
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-yinanping-jinrizuoriyumingri-02.webp)
+
 ## 昨日的回顾
 
 其实这里的昨日，并不只是讲昨天，其实总的来说是讲过去吧。讲讲过去那个不完美的自己，想起来难免会有一些意难平，难免心会回忆着过去。
@@ -44,6 +48,8 @@ tags:
 但自己还是去参与那些所谓的东西或者是项目，当时有着很多的想法，也不管能不能实现，至少很多想法在当时也算是有意思的，然后从中去做一些作品或者项目，参与一些比赛，过程是有收获的，结果自己感觉也是可以的，还可以有一定的满足感和成就感，开阔一些的眼界。
 
 当然现在写的写的，好像总结不完过去，限于最终的篇幅，一些其他的事情，之后也会慢慢讲到。
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-yinanping-jinrizuoriyumingri-03.webp)
 
 ## 明日的展望
 
@@ -60,5 +66,7 @@ tags:
 当然大致在写完以后，觉得可能和标题联系地不是特别紧密，因此之后还会写类似的内容作为一些补充吧。
 
 今天的话，因为晚上高铁晚点了一段时间，因此本篇文章和之前相比，会晚一些，在回北京了以后，基本上就会按正常的节奏每日九点多更新。
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-yinanping-jinrizuoriyumingri-04.webp)
 
 今日份歌曲，交织千个心，歌曲分享环节，大多数是看心情，以及近期听的歌，或者是有和主题很契合的。
