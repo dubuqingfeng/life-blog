@@ -13,6 +13,8 @@ tags:
 
 时过境迁，沧海桑田，记得曾经哈佛有一门公开课，叫《幸福课》，其实里面就在讲利用积极心理学，让人觉得更加幸福，更好地认识自我感受，从而培养自己的积极体验，积极人格，积极情绪。
 
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-yinanping-chushijijixinlixueyushiguorenqian-01.webp)
+
 ## 初识积极心理学
 
 近期读了《积极心理学》这本书，在这里记录一下自己的读后感，这一段主要是初识部分。
@@ -33,6 +35,8 @@ tags:
 
 有些人认为，积极心理学的发端是由著名的马斯洛写的《动机与人格》，这一点我想大多数都比较赞同，因为人性，所以有了人本主义心理学。因为满足了最基本的马斯洛需求（生存需求和安全需求），这个时候就会开始追求更高一层的社交，尊重，自我实现。而积极心理学的宗旨在于帮助人类生活得更好，而不是普通的一些追求，活着的真正意义，在于追求生活幸福。
 
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-yinanping-chushijijixinlixueyushiguorenqian-02.png)
+
 这一部分的内容基本介绍了什么是积极心理学，积极心理学的作用，而更多的什么是幸福，如何构建积极情绪，形成积极人格，会在之后慢慢叙述。
 
 当然这部分内容感觉，不仅可以用于心理治疗和疏导，也可以用于家庭或者教育，构建一个积极的家庭氛围，这样更有利于相互的了解和沟通。
@@ -51,6 +55,8 @@ tags:
 
 所以更多地讲少年，未来可期。
 
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-yinanping-chushijijixinlixueyushiguorenqian-03.webp)
+
 ## 时过人迁
 
 想自己，来北京已经快五年的时间了，这段时间，说长也长，说短也短，总会经历很多不同的人和事。
@@ -62,6 +68,8 @@ tags:
 人生在每个阶段都会因为一些际遇而不断改变，不管遇到什么事情，都要去努力，都要乐观地去面对，这样应该在回望的时候，会少一些遗憾吧。
 
 这个主题，总会觉得那么些怀旧，正所谓，时过境迁，沧海桑田，人也不再是少年。经过时间的洗礼，留下来的肯定是美好的。
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-yinanping-chushijijixinlixueyushiguorenqian-04.webp)
 
 今日的歌曲，本来想分享似水流年来着，好像记得之前有分享过了，那就梦驼铃。
 
