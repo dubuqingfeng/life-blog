@@ -9,10 +9,11 @@ tags:
  - 鹿港小镇
 ---
 
-
 引言：
 
 在大城市的年轻人，夜晚总会见到霓虹灯；但却不是家乡的那种，当初我们的小镇。很多事情，我们没办法改变；路上也早已不是，当年的模样的人们；但唯有调整心态，继续前行，这就是城市里的异乡人。
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-yinanping-peiyangjijiqingxuyunihongdeng-01.webp)
 
 ## 培养积极情绪
 
@@ -46,6 +47,8 @@ tags:
 
 也是一种调整心态。
 
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-yinanping-peiyangjijiqingxuyunihongdeng-02.webp)
+
 ## 台北的霓虹灯
 
 今天偶然间，刷到一个 “国内 80/90 后有“能从明星 20 岁追到 50 岁”的明星吗？”，里面有谈到罗大佑，于是突然想到鹿港小镇这首歌，就开始单曲循环，（最近不怎么顺序播放，经常性单曲循环）。
@@ -61,6 +64,8 @@ tags:
 不知道之前的遗迹还能保存多少，我想在路上，尽可能地发现一些岁月的痕迹，用镜头记录下来，分享成一个个故事，这也是对于它们的一种意义。
 
 一些东西也渐渐少了传承，以前的感觉也渐渐逝去。但年轻人，大多数还是未必甘于平淡的小镇生活，想去大都市寻找自己的梦想，不经历繁华，何以能看破红尘？
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-yinanping-peiyangjijiqingxuyunihongdeng-03.webp)
 
 ## 民族主义，保守主义
 
@@ -78,6 +83,8 @@ tk 教主最近 renew 了之前的一篇微博：
 所以大的方向，还是民族主义，自我民族的利益还是很重要的，那些恶性竞争是没必要的，是不利于市场发展的，资产阶级和无产阶级都需要考虑到，同时保守主义也是一张策略，在不同的历史阶段，有不同的含义。
 
 其实阿里有很多很多业务需要更多的监管，这一次也是一种提醒吧，更多地还是要听国家的话，避免一些过度的垄断地位。
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-yinanping-peiyangjijiqingxuyunihongdeng-04.webp)
 
 今日歌曲，罗大佑的《鹿港小镇》，一起听台北的霓虹灯。
 

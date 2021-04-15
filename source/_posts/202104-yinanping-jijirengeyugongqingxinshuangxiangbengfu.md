@@ -13,6 +13,8 @@ tags:
 
 一边是快乐分享，一边是肯定鼓励，这种感觉也是很好的，在这个过程中，如何培养自己的积极人格，利用共情心减轻焦虑。正所谓，积极人格，快乐加倍。
 
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-yinanping-jijirengeyugongqingxinshuangxiangbengfu-01.webp)
+
 ## 积极人格
 
 人其实是一种独特的高级动物，不仅仅有思考、有情绪，还有不同的性格、人格，充满各种各样的情感。
@@ -43,6 +45,8 @@ tags:
 
 这里其实大致讲了积极人格的一些概念和观点，至于如何形成积极人格，限于整体的篇幅，可能就需要在下篇讲述。
 
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-yinanping-jijirengeyugongqingxinshuangxiangbengfu-02.webp)
+
 ## 共情心
 
 在想了一段时间的心理学了以后，其实也算是有收获的，当然这方面也是一个理论和实践相结合的，光学理论，不做实践，是不行的。
@@ -58,6 +62,8 @@ tags:
 总之，在别人焦虑的时候，看环境，适当地进行共情心，这不仅可以用于人际关系，还可以用于产品设计。
 
 当然，难免会有一些不同的声音，比如说《摆脱共情》，多读读不一样的东西，兼听则明，这样才是最有力的成长。
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-yinanping-jijirengeyugongqingxinshuangxiangbengfu-03.webp)
 
 ## 双向奔赴
 
@@ -75,6 +81,8 @@ tags:
 
 人非完人，多多少少会有点缺点，在相处过程中，有时候却放大那些缺点，而忽略那些优秀的特质，这样也是不好的。
 
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-yinanping-jijirengeyugongqingxinshuangxiangbengfu-04.webp)
+
 感情一直是双向的，你有权利喜欢对方，也有权力不喜欢对方，对方也可以不喜欢你。
 
 不知道如何，突然想起了张爱玲，内心是很敬佩喜欢这个人的，那种处世的艺术，因为懂得，所以慈悲。
@@ -88,6 +96,8 @@ tags:
 好的亲密关系，是双向的奔赴，无论爱情还是友情。
 
 在双向奔赴的过程中，也要关心自己，做一个健康的你。
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-yinanping-jijirengeyugongqingxinshuangxiangbengfu-05.webp)
 
 今日的歌曲，邰正宵的几番风雨，老歌总是那种越听越回味，（当然这个也是999+，也不算特别小众了）。
 
