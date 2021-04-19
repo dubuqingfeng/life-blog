@@ -13,6 +13,8 @@ tags:
 
 知性美的气质是长期的文化积淀和熏陶的积累，从容不惊，理解他人，独立真善，而我们在成长的过程中，如果遇到自己或者朋友意难平的时候，又该如何地去开导他们，让其积极走出焦虑，锻炼自己的内心呢，从而优雅而不做作，自信而不自负。
 
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-yinanping-jijixinlizhiliaoyuzhixingmeizhenbianshu-01.png)
+
 ## 积极心理治疗
 
 上篇主要是在讲什么是积极心理治疗的事情，本篇就学习一下如何去做积极心理治疗，其实学习这些，并不是有那些功利心，也没有太多目的性，以后说不定用得着。
@@ -24,6 +26,8 @@ tags:
 初始谈话，是治疗师与患者的第一次见面，这种和其他相亲这种不同，并不是会有太强的目的性，是一种逐渐建立信任的基础，在一开始联系阶段，主要是搞清楚三个问题，怎么知道要到这里来，因为什么原因来到这里，之前的身体发展情况等，当然如果是朋友之间的话，就直接会有相关的信任，可以省略这一阶段。
 
 首先，大多数意难平，是有一些心理冲突的，首先了解这个冲突的性质和程度，然后要聆听对方的描述的心理冲突及心理症状的具体内容，也是朋友之间去了解对方的一些状况，（比如去倾听对方是分手了还是吵架了），然后是一个整合阶段，将得到的信息加以整合，最终形成一个所谓的报告，这个并不是和医院一样，直接去定性，这有点像案卷一样，是一个辅助性的，帮助咨询师确定采取哪种措施的根据，以及记录一些变化。上面这基本上是一些基础，就好像朋友之间，去了解问题的情况。
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-yinanping-jijixinlizhiliaoyuzhixingmeizhenbianshu-02.webp)
 
 然后就是一个比较重要的阶段，主导治疗，总的来说，理论上包括五个阶段，观察和保持距离阶段、调查阶段、场合鼓励阶段、语言表达阶段和扩大目标阶段。
 
@@ -42,6 +46,8 @@ tags:
 不知道写的写的，竟然入了神，回顾以前，自己也曾做过很多错误的行为，尝试着挽回，但却没有好的结果，因此这篇又算是意难平，其实这里面的内容讲得都挺好的，值得去学习。所以突然有一种恨晚的感觉，人生就是会有些遗憾，重要的是如何去看待。
 
 所以想先学习一段时间的心理学。
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-yinanping-jijixinlizhiliaoyuzhixingmeizhenbianshu-03.webp)
 
 ## 知性美
 
@@ -63,6 +69,8 @@ tags:
 
 装作正派，面带笑容。
 
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-yinanping-jijixinlizhiliaoyuzhixingmeizhenbianshu-04.webp)
+
 ## 枕边书
 
 那么如何向这个方向发展呢，有很多途径，其中很重要的一个途径，是多读书，总的来说，社会相对是浮躁的，现在大量的信息充斥着周围，时不时地会推送各方面的个性化推荐，时不时地有各种诱惑。
@@ -80,5 +88,7 @@ tags:
 我们可以在这个世界里，尽情地骄傲放纵，感受着别人带来的温暖与悲情，在泛黄灯光下自我实现。阅读过程中让人既能焦躁，又有轻松愉悦，宛如听到一首即兴乐曲。
 
 多读书，多思考，多经历。
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-yinanping-jijixinlizhiliaoyuzhixingmeizhenbianshu-05.webp)
 
 今日的歌曲，我们的天空，突然间符合了心境，纪念曾经的理想。
