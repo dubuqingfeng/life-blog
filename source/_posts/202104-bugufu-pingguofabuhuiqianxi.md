@@ -13,6 +13,8 @@ tags:
 
 空山新雨后，绿树村边合。其实那种田园生活，不是逃避，而是热爱，甚至于就像苹果公司创始人乔布斯所说的一样，热爱才可以在困难中坚持下去。而面对困难，我们又要有痛并快乐着的想法与态度，收获失败，充满执着，不断历练。
 
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-bugufu-pingguofabuhuiqianxi-01.webp)
+
 ## 苹果发布会
 
 今天晚上其实是苹果的春季发布会，当然每次发布会，都没有去熬夜去看，就只是第二天去看一些新闻媒体的总结性文章，以及可能有的天才小熊猫。
@@ -24,6 +26,8 @@ tags:
 在 1983 年的时候，苹果公司需要一位懂销售的市场管理人员，于是就想到了当时为百事工作的 ceo 约翰斯卡利，但是斯卡利很忧郁，直到乔布斯说出了那句著名的话，你是愿意一辈子卖糖水？还是想改变世界？这句话说服了斯卡利，加入了苹果，担任 CEO，虽然后来与乔布斯产生了不合，将乔布斯赶出了苹果公司，但他依然觉得苹果的产品是在市场上做的最好的。在内心上，还是对乔布斯充满敬佩之心。
 
 包括早期的沃兹尼亚克，都愿意将自己的信任放在乔布斯上，投入自己的时间和精力，我想这也是个人魅力吧。
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-bugufu-pingguofabuhuiqianxi-02.webp)
 
 乔布斯其实是那种很强势的人，敢于追求自己想要的，并且充满理想主义，后来面对 Android 这种后起之秀，也大加批评。
 
@@ -40,6 +44,8 @@ tags:
 他是那种天才，南海十三郎一般的天才，他同时也是那种疯子，特立独行，不安现状，致力于改变世界。
 
 Stay Hungry. Stay Foolish.
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-bugufu-pingguofabuhuiqianxi-03.webp)
 
 ## 谷雨知时节
 
@@ -59,6 +65,8 @@ Stay Hungry. Stay Foolish.
 
 前赤壁赋，烟花三月下扬州。
 
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-bugufu-pingguofabuhuiqianxi-04.webp)
+
 
 ## 痛并快乐着
 
@@ -75,5 +83,7 @@ Stay Hungry. Stay Foolish.
 每件事情，都只有自己才能体会得到，那一份动人的旋律，草莓音乐节的氛围，那一份美味佳肴，任你品尝。
 
 不知道别人有没有印象，曾经以前有这么一本书，叫《追忆似水年华》，也是一些所见所闻所思所感，既有人情世态，又有自我思考。对人生之回顾，对往事的追忆。
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-bugufu-pingguofabuhuiqianxi-05.webp)
 
 今日歌曲，《芳华》电影的插曲，《浓情万缕》，邓丽君小姐也是那种温文尔雅，特别亲切的那种人。
