@@ -49,6 +49,8 @@ tags:
 
 顺德当然还有很多美食，其他的还需要去当地实际品尝才知。
 
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-bugufu-shizaiguangdongchuzaishunde-05.webp)
+
 ## 人口下降
 
 知情人士：普查将显示全国人口出现1949年以来首次下降。
@@ -59,7 +61,7 @@ tags:
 
 在提高人口生育率方面，其实应该是有一些政策和福利的倾斜的，比如在幼儿园上面，让大家可以上得起学，也不要培养鸡娃这种气氛，以及给年轻人创造更多的就业机会，进而提高促进养育能力，同时降低城市人口密度，降低房价和交通带给年轻人的压力。（尤其现在北京的一些交通压力是比较大的）。
 
-![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-bugufu-shizaiguangdongchuzaishunde-05.webp)
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-bugufu-shizaiguangdongchuzaishunde-06.webp)
 
 而现在，其实社会在变好的同时，选择也就多了起来，我们不一定非要去生孩子来养老，有些人觉得，不管自己生不生，在未来，老了以后，一样也可以幸福。而不一定非要以生孩子的方式去防老。
 
@@ -69,6 +71,6 @@ tags:
 
 所以很多事情是相对的，需要辩证地去看待吧，但我们相信，事情总会在不断地变好。
 
-![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-bugufu-shizaiguangdongchuzaishunde-06.webp)
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-bugufu-shizaiguangdongchuzaishunde-07.webp)
 
 今日的歌曲，早上日推的《山茶花》，听了感觉挺好听的一首。
