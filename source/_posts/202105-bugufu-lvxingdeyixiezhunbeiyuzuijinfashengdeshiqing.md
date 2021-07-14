@@ -17,11 +17,15 @@ tags:
 
 今日的歌曲，几许风雨，歌词悠扬，来源生活高于生活，在歌中感悟人生的道理。人生谷底，自有安慰缓解。
 
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202105-bugufu-lvxingdeyixiezhunbeiyuzuijinfashengdeshiqing-01.webp)
+
 人总说，这个世界不只有眼前的枸杞，还有诗和远方。
 
 最好还是要多出去走走的，这样可以遇到不同的人，遇到不一样的事情，可以感受到他们的一些生活状态。而之前也有在考虑，总结一下，在奔向远方的时候，身心和物品上应该有什么样的准备。
 
 不管是说走就走，还是计划已久，在物品上其实都需要进行一些规划，避免到了目的地，有一些失望。
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202105-bugufu-lvxingdeyixiezhunbeiyuzuijinfashengdeshiqing-02.webp)
 
 物品准备上的话，觉得主要可以分为几部分：
 
@@ -31,15 +35,21 @@ tags:
 
 防晒霜，墨镜，这个应该是必备了，出去难免会遇到太阳强烈的时候，需要做好一定的防护，不然还需要做晒后修复。以及墨镜在拍照上面也比较上镜一点。
 
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202105-bugufu-lvxingdeyixiezhunbeiyuzuijinfashengdeshiqing-03.webp)
+
 隔离和素颜霜，这个和平时差不多，但旅行上，因为时间不长，所以每次步骤上尽量少一点，在洗完以后，简单抹一些，素颜霜的话，是一种护肤面霜，让皮肤不上底妆也能白起来，而且呈现一种较为自然水润的状态，当然也有一点防晒的效果，持久度的话一般有几个小时。
 
 香水，这个一般带淡一点的香水，古人有云，久居芝兰之室，不闻其香，香水有时候也如此。当然这个领域还不算熟悉，还在入门摸索，之后也会有一些分享，（最近看到应该是让香水自行渗入皮肤，而不是手腕摩擦），出去玩的时候，有可能会见到一些朋友，也算是一种准备吧。
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202105-bugufu-lvxingdeyixiezhunbeiyuzuijinfashengdeshiqing-04.webp)
 
 剃须刀和充电器，这个必备，就不说明了。
 
 在拍照部分：
 
 相机、镜头、手机，这次也有带一个桌面三脚架，但是实际没有用到。镜头的话，主要还是要看目的，一般是变焦，种类上，如果是人像和风景，一般带个广角镜头和标准镜头，应该就可以了，基本上除了一些长焦的拍摄，就覆盖到了。最近也看到一些航拍的东西，之后也想用大疆无人机去拍一些东西，但这应该是之后的事情了。
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202105-bugufu-lvxingdeyixiezhunbeiyuzuijinfashengdeshiqing-05.webp)
 
 在饰品上，一些手表和项链吧，也占不了空间。
 
@@ -49,9 +59,13 @@ tags:
 
 当然尽量少带一些行李，比如说一些也许会看的书，（尽量电子版吧），可能会敷的面膜，可以当地买），尽量只带一些必备的，那些有可能用得上的，最好就不要带了，不然路上的话，就会有点比较累。
 
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202105-bugufu-lvxingdeyixiezhunbeiyuzuijinfashengdeshiqing-06.webp)
+
 一般当地推荐的一些景点和美食，可以咨询酒店的前台，一般是本地人，会给到一些中肯的推荐。其他需要准备的以后会在留言补充。
 
 其实，最需要准备的应该是一颗自由不辜负的心，在生活中发现那么些美好，体验不同的人生状态，感受那些自然风景与人文。
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202105-bugufu-lvxingdeyixiezhunbeiyuzuijinfashengdeshiqing-07.webp)
 
 ## 最近发生的事情
 
@@ -61,7 +75,11 @@ tags:
 
 今天晚上也在爆料马斯克通过区块链获利了上百亿美金，其实应该不只这么些，可能达到上千亿，同时他也是很多币的庄。
 
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202105-bugufu-lvxingdeyixiezhunbeiyuzuijinfashengdeshiqing-08.webp)
+
 etc 这个币的上涨，etc 是最近没有想到的，这个币实际上，现在没有任何实用价值，所以很多事情，是没有道理的，etc 这个币，在历史上，也曾经因为算力低多次出现双花的。在熊市的时候，这个币只有四五十人民币的，但现在，达到了七八百块钱。这背后，其实更多的是庄家的操作，早在四月份的时候，就有消息称，有超级大佬入场 etc 这个币种了，那会的深度比较低，应该筹码成本也比较低，然后进行一波拉盘。所以说，币圈一些舆情的信息也是很重要的，直接关系到了一些币种的上涨，一个极具代表性的就是马斯克和灰度的一些言论。但这种币种，不像狗狗币一样有群众的基础，算力上其实也没有很多保障，不适合长期看好，短期要考虑好风险。（长期还得看 ETH）
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202105-bugufu-lvxingdeyixiezhunbeiyuzuijinfashengdeshiqing-09.webp)
 
 最近还有一个币种，SHIB，这两天，也是暴涨很多倍，其实这个币也很有意思，它的理念是，在 shib 面前，每个人都一样，众生平等，一切从零开始。是一个关于零的社会实验。
 
@@ -75,14 +93,22 @@ Shib 这个币种的创始团队不拿任何的 shib 币，没有自己的利益
 
 当然这种高收益必然意味着高风险，如果玩合约的话，是比较容易被爆仓的。
 
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202105-bugufu-lvxingdeyixiezhunbeiyuzuijinfashengdeshiqing-010.webp)
+
 至于为什么昨天没有更新，昨天晚上去见了一个红娘服务，但聊的时间比较长了，以至于过了十二点，然后没有任何的准备，会有点心里不愉快吧，这种服务，其实在市场上存在是有一定的道理的，但是由于认知的不平等，难免会出现一些问题，相信都会慢慢解决的。
 
 至于相亲的作用，我觉得，其实是那种可以更好地认识自己，让自己明白不想要哪种的，想要的很多，但肯定不现实，而在这个过程中，我们需要更好地去展示自己，展现那种最真实的一面，以及真诚待人。
 
 有时间的话，可以看看《傲慢与偏见》的书和电影，看达西先生和伊丽莎白女士之间的感情，以及理性的选择。人生需要经营，婚姻也需要一定的经营。
 
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202105-bugufu-lvxingdeyixiezhunbeiyuzuijinfashengdeshiqing-011.webp)
+
 傲慢与偏见写的不是爱情，而是人性的本质。
 
 你若花开，蝴蝶自来。祝都能早日找到属于自己的幸福。
 
 今天的话，其实看了一些视频以后，有在想了自己做一些视频，去讲生活中的不辜负，可能之后会一个月左右发一次，内容的话，是一些城市比较小众一些的生活，通过一些文案和剪辑，让人紧张的心放松下来的那种。
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202105-bugufu-lvxingdeyixiezhunbeiyuzuijinfashengdeshiqing-012.webp)
+
+照片来自重庆和兰州

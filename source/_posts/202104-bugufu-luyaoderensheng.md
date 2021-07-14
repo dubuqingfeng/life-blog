@@ -15,6 +15,8 @@ tags:
 年少不知人生味，看懂已是过来人。
 晚安，不辜负。
 
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-bugufu-luyaoderensheng-01.webp)
+
 ## 李宗盛
 
 每个人都有一个心里的李宗盛，别人说，年少不听李宗盛，听懂已是不惑年。所以有一段时间，很不想去听李宗盛，自己觉得自己的经验不多，总是害怕去懂人生。
@@ -33,7 +35,11 @@ tags:
 
 往事不要再提，人生已多风雨。
 
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-bugufu-luyaoderensheng-02.webp)
+
 ## 路遥的人生
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-bugufu-luyaoderensheng-03.webp)
 
 路遥在 1982 年的时候，出版了人生，而其在十年之后，谁曾想，因为疾病在西安逝世。
 
@@ -48,5 +54,7 @@ tags:
 我们必须要警惕自己内心的恶，以及他人动机中的恶。
 
 今天本来是想分享三个话题的，但由于有些事情，影响了一些计划，因此今天只有一千余字的分享，之后会重新读一读《人生》，再写一些感受吧。
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-bugufu-luyaoderensheng-04.webp)
 
 今日的歌曲，朋友吧，社会里什么比较珍贵，那便是朋友。

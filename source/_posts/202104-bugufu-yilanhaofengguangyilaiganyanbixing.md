@@ -14,6 +14,8 @@ tags:
 
 总有那么些地方，是值得住下来细细品，今天介绍一个比较小众的地方，台湾宜兰，有着田园式的风光，有山有海有树林，在城市建设中，算是那种宜居类型，同时也比较适合观光，感受人文荟萃，环境清新，适合人们生活。
 
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-bugufu-yilanhaofengguangyilaiganyuyanbixing-01.webp)
+
 ## 宜兰
 
 在想有没有那种，既有山，又有海的地方，大陆地区，海边通常山比较少，山多的，几乎看不到大海。
@@ -36,6 +38,8 @@ tags:
 
 宜兰人与龟山岛长年相伴，风雨千变万化，已经融入日常的生活中。
 
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-bugufu-yilanhaofengguangyilaiganyuyanbixing-02.webp)
+
 吃的方面，宜兰有鸭赏、胆肝、蜜饯和苏澳羊羹，合称宜兰四宝。
 
 鸭赏，是那种赏口的小菜，由鸭皮、鸭胗和葱、姜蒜，经过短暂大火爆炒，达到脆而不腻的效果，算是比较道地的家常菜。
@@ -43,6 +47,8 @@ tags:
 另外还有肝花，是宜兰非常有特色的一道小吃。它是以瘦肉或内脏、鱼浆、荸荠为主料，加葱花、葱头等配料剁碎，再裹以豆皮炸制而成。因当时人们以猪肝为主料，故名肝花。
 
 总的来说，这里既有海鲜，又有米粉羹，还有熏鸭掌，熏制的猪肝，芋泥，牛舌饼等。当然一部分食物，在厦门也有，也能品尝得到。
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-bugufu-yilanhaofengguangyilaiganyuyanbixing-03.webp)
 
 ## 依赖感
 
@@ -61,6 +67,8 @@ tags:
 如何减少对别人的依赖感？方法应该有很多，比如转移注意力，看看一些电视剧，看一部综艺和电影，或者是去学习，学习自己喜欢的东西，刷一会儿抖音，打一会游戏。
 
 以自我为中心，首先要好好关心自己，找一些自己觉得有意义的事情，并开始去做。
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-bugufu-yilanhaofengguangyilaiganyuyanbixing-04.webp)
 
 ## 一诺千金
 
@@ -84,5 +92,9 @@ tags:
 后来孟子引申说：“大人者，言不必信，行不必果，唯义所在。”
 
 当然，也告诉我们，不要去过多地迎合他人，守信是美德，但需要一些深层次的思考，不知变通，便是那种浅薄固执的人，庸者而已。
+
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-bugufu-yilanhaofengguangyilaiganyuyanbixing-05.webp)
+
+题图来自 / pmshkung0929@flickr
 
 今日歌曲，今天日推的烟雨凄迷，意境凄美迷茫，大概只有 Danny 可以唱出那种感觉。
