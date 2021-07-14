@@ -34,7 +34,7 @@ tags:
 
 再后来，便是 Google 的那几篇经典的论文，奠定了分布式计算的一些基础，在此之后，大数据框架层出不穷，计算的量级不断提升，从当时的 GB 级别，一直到 TB，PB，EB。
 
-![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-bugufu-jisuandenengli-03.webp)
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-bugufu-jisuandenengli-03.png)
 
 在此之间，基础设施的一些性能也提升了很多很多，搭建了云计算平台，内存从世纪初的 几十M 到现在 的 128 GB，处理的数据能力不断提升。
 
@@ -50,7 +50,7 @@ tags:
 
 而我们周边的计算，已经日新月异。随着国家的不断推进，在很多方面，有越来越多的智能机器人，智能化设备参与其中。包括一个实际的例子，大概在十年前，如果是双十一大促这种的大规模压力，当时让快递行业不堪重负，处理能力跟不上，一直需要半个月才可以处理完全部的包裹，而现在实际量级大概也翻了很多倍，但处理能力依旧和平常差不多，这背后其实和效率的提升是分不开的。
 
-![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-bugufu-jisuandenengli-04.webp)
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-bugufu-jisuandenengli-04.png)
 
 图片来自达摩院官网。
 
