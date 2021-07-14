@@ -16,7 +16,7 @@ tags:
 
 ## 计算的愿景
 
-![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-bugufu-wanwuhuliandejisuan-01.png)
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-bugufu-wanwuhuliandejisuan-01.webp)
 
 其实这篇文章，是跟着上篇计算的能力的一种补充，主要去讲现在有关计算的一些愿景和发展，甚至可以包括一些对未来的畅想。
 
@@ -30,13 +30,13 @@ tags:
 
 这一两年，5G 也开始大规模普及，很多物品就有了可连接性，可以交换信息，而在未来，一个人可以拥有数十上百的智能应用产品，而每个实体都应该有一个独一无二的身份，一旦这些实体有了身份，那么就会有可信计算，还会涉及到一些隐私相关的东西， 由一些可信硬件来执行一些规则，开拓广阔的商业前景，就和执行智能合约的虚拟机一样。
 
-![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-bugufu-wanwuhuliandejisuan-03.png)
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-bugufu-wanwuhuliandejisuan-03.webp)
 
 当然类似的想法项目，已经有了，有一个可信万物互联计算平台，叫 IoTeX，设想的话，是用区块链连接全世界，当然作为区块链初创公司来说，挺不容易的，这个行业没有明确的商业模式，大家都是在不断探索中。
 
 他们的目标是构建一个分布式可信计算平台，实现的话，主要是高吞吐，去中心和稳健的公链+若干子链，以及每个人都可以拥有的可信计算硬件。
 
-![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-bugufu-wanwuhuliandejisuan-04.webp)
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-bugufu-wanwuhuliandejisuan-04.png)
 
 当然想法是好的，项目也在不断开发中，公链的话，也是用 Golang 实现的，我们可以更多地学习一些思路和代码。目前的话，公链上有千万交易，节点方面，也有币安，IoTeX 官方等。在智能合约通证方面，也和 eth 比较相像。
 
@@ -79,7 +79,7 @@ tags:
 
 当然这与国家的一些相关政策和指导是分不开的，工信部、电子发展研究院也很早地开始一些规划和体系化的构建。
 
-![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-bugufu-wanwuhuliandejisuan-07.webp)
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-bugufu-wanwuhuliandejisuan-07.png)
 
 当然在一些重点领域，比如超级计算、人工智能、汽车智能计算、云计算逐渐走在了世界前列。但不可忽略的是，有些领域还是和世界一流水平存在差异，比如一些高端通用芯片，自主可靠操作系统，还有一些基础芯片，所以也不能骄傲，依然需要在自己的领域，不断地寻求突破。
 
