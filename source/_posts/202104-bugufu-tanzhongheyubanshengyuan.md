@@ -14,7 +14,7 @@ tags:
 
 怕无归期，怕空欢喜，怕来者不是你。当然在生活中，也要提倡绿色理念，近些天有一个碳中和的词比较热门，而本次就简单了解碳中和的缘来缘尽。说起缘，不过就是人生的聚散离合。缘来，相遇，缘尽，别离。而那些人，长留心底。
 
-![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-bugufu-tanzhongheyubanshengyuan-01.webp)
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-bugufu-tanzhongheyubanshengyuan-01.png)
 
 ## 碳中和
 
@@ -48,7 +48,7 @@ tags:
 
 ## 半生缘
 
-![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-bugufu-tanzhongheyubanshengyuan-03.png)
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202104-bugufu-tanzhongheyubanshengyuan-03.webp)
 
 缘分其实是一种很奇怪的东西，你若相信，那很多都是缘分，人与人遇见的概率真的很低，有可能一直擦肩而过而不知，也有可能是宿命。
 
