@@ -28,7 +28,7 @@ tags:
 
 我们经常可以看到，在网络里，评论某些人的三观很正，但不知道有没有想过，对与错如何判定，是否可以狡猾地混淆地骗过一些人。其实喜欢一个人，很多时候，也要看这个人的三观，以及 Ta 给你带来的影响，当和这个人相处时间长了，应该要感受到这个人更多的优点，（否则的话要及时止损）。比方说他带来的积极快乐的那种感觉，爱国，相互尊重，对朋友讲义气，好的人品，提携后辈，都是一些很好的品质。
 
-![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202201-bugufu-wulunduihecuo-ziwodeshenghuo/01.jfif)
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202202-bugufu-wulunduihecuo-ziwodeshenghuo/01.jfif)
 
 
 世界观对于来说，是一个比较宏观的事情，从少年时期，就开始塑造对世界的看法，对万物的好奇，同时在学习唯心和唯物之后，也在不断更新着世界观。这里世界要包括宇宙、自然界、社会、国家等等，包括反对迷信运动，反对种族歧视等。
@@ -37,14 +37,14 @@ tags:
 
 价值观，在我的理解中，更偏向个人的意识形态，总结起来，认为什么是最有价值的，同样这个答案也随着人的成熟而不断地变化。小时候，父母是我们的依靠，成长时，朋友是我们的信任，恋爱时，恋人是我们的依赖，成家时，家人是我们的港湾，到最后，我想总结来，应该是珍惜眼前人。不要错过一些不该错过的事情，这样会永远好运。
 
-![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202201-bugufu-wulunduihecuo-ziwodeshenghuo/02.jfif)
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202202-bugufu-wulunduihecuo-ziwodeshenghuo/02.jfif)
 
 
 其实这节应该是要说沉没成本的，不管是在经济学当中，还是在感情里，都是一个很重要的概念。
 
 这是成本吗，其实也不算的，就好比等车一样，也许下一趟公交车会很久，也许为了节省时间可以立马打开滴滴软件打个车，但是又想已经等了十分钟了，说不定很快就到了，又继续等下去，持续增加这个等待的时间和精力成本。后来随着等公交车的次数不断增加，渐渐也想明白了，如果要节省时间，一开始就不会选择去等公交车，如果临时赶时间，就应该立即止损，设置止损点，来看哪种方式更快一点。
 
-![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202201-bugufu-wulunduihecuo-ziwodeshenghuo/03.jfif)
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202202-bugufu-wulunduihecuo-ziwodeshenghuo/03.jfif)
 
 
 同赌博是一样的，这也是综合了人性，有的时候，越付出越不甘心，想着继续付出，等待回本的那个时机，其实可能都没有想过，主动权早已经不在自己手中了。我们要成为各自理想中的那个人，而不是单方面的维护那一段关系，而当成熟了以后，也不会再一味地只靠感情做事，更多地理性去思考究竟这样合适不合适。
@@ -53,14 +53,14 @@ tags:
 
 生活应该是精彩的。私以为，生活是要不断尝试的。
 
-![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202201-bugufu-wulunduihecuo-ziwodeshenghuo/04.jfif)
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202202-bugufu-wulunduihecuo-ziwodeshenghuo/04.jfif)
 
 
 今天邓安庆发表的文章，也是今天颇有感触的一篇，不仅是回想起自身，而且也是勾起了回忆。家庭里也是那种很反对铺张浪费，就是一边说着家里不能露穷，一边反对着除了必要的维持的花销。小的时候很难释怀，也许只有在过年的时候，才能被迫式地买到自己不喜欢的新衣服和鞋子，然后也就越来越压抑着自己对于事物的喜欢，除了一些爱好，其他的自然就没有那股心劲。
 
 慢慢地，随着时间不断地流逝，毕业了，开始打拼了，真正才会理解当初他们的心态吧，从困难时期过来的人，经历过吃不上、不好的生存环境，才更懂得珍惜，每一次的变动，都需要很多的积蓄，而且也早已经没有攀比之心。
 
-![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202201-bugufu-wulunduihecuo-ziwodeshenghuo/05.jfif)
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202202-bugufu-wulunduihecuo-ziwodeshenghuo/05.jfif)
 
 
 那一代的人，没有真正享受过经济带来的福利，就算现在生活无忧，那种节俭的观念也早已根深蒂固，或者是对于他们来说，身体健康，吃饱穿暖，儿女幸福，这便是最大的享受了。
@@ -77,7 +77,7 @@ tags:
 
 不管怎样的情况都全力以赴，走出身体和心灵上的伤痛，重建更加强大的自我。这也是共同的特点之一吧。
 
-![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202201-bugufu-wulunduihecuo-ziwodeshenghuo/06.jfif)
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202202-bugufu-wulunduihecuo-ziwodeshenghuo/06.jfif)
 
 唯一的敌人是自己，唯一了解自己的也是自己。
 
@@ -88,11 +88,11 @@ tags:
 
 所以不应该过于沉迷于过去，辉煌也好，心酸也罢，都不重要了。重要的只有现在，创造属于明天的辉煌史。
 
-![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202201-bugufu-wulunduihecuo-ziwodeshenghuo/07.jfif)
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202202-bugufu-wulunduihecuo-ziwodeshenghuo/07.jfif)
 
 
 缘分自有定数。
 
 tips：这次好像离圣多纳释放法越来越远，下次的话，再继续，可以加上亲密关系和非暴力沟通的一些所感。
 
-![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202201-bugufu-wulunduihecuo-ziwodeshenghuo/08.jfif)
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202202-bugufu-wulunduihecuo-ziwodeshenghuo/08.jfif)
