@@ -21,7 +21,7 @@ tags:
 
 在这个世界上，从来没有平白无故的爱，只有双方逐渐感觉到舒适的状态。当然也没有平白无故的离开，那么多理由总结出来其实都是错的，最直接的我想只有那个不爱了吧，然鹅人就是这样敏感的生物，为了这一个理由，去想的那些什么“我们不合适”，“三观不合”类似乱七八糟的理由。
 
-![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202201-bugufu-wulunduihecuo-ziwodeshenghuo/00.jfif)
+![](https://dubuqingfeng.oss-cn-hongkong.aliyuncs.com/blog/life/202202-bugufu-wulunduihecuo-ziwodeshenghuo/00.jfif)
 
 
 若是问起来，三观是哪三观，我想可能会有些人未必能真的答上来，有的人可能会答白云观、长春观（武汉的）、玄妙观（苏州）。若是讲起来，人生观、价值观、世界观，其实真正在亲密关系中，要远不止这些，情况要相对复杂一些。
